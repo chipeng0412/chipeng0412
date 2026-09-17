@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chipeng0412
-- 👀 I’m interested in Math , Music , and Programming
+- 👀 I’m interested in Embodies AI, Physical AI, Math , Music. 
 - 🌱 I'm currently studying programming with a major in Automation.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me w1262595962@gmail.com
